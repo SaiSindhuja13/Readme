@@ -8,6 +8,6 @@ I'm on a mission to unlock the power of data! Through hands-on projects, I'm con
 
 You can reach out to me at:  
 **Phone:** +1 (508) 496-3072  
-**Email:** [saisindhuja1398@gmail.com](mailto:saisindhuja1398@gmail.com)  
-**LinkedIn:** [https://www.linkedin.com/in/sai-sindhuja-upadrashta-2ab7a5188/](https://www.linkedin.com/in/sai-sindhuja-upadrashta-2ab7a5188/)
+**Email:** [saisindhuja1398@gmail.com] (ClickHere!)  
+**LinkedIn:** [https://www.linkedin.com/in/sai-sindhuja-upadrashta-2ab7a5188/] (MyProfile)
 
